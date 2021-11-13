@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **visnu.santos1203@gmail.com**
 
-- ⚡ Fun fact **I'm a vegetarian since birth!**
+- ⚡ Fun fact **I love mountainbiking!**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
